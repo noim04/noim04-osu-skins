@@ -3,7 +3,7 @@
 # [- noim04 (aristia edit) -](https://mega.nz/file/R7hnjL4a#BK98DQnLgxC9g8j2QBqiA8atChwLJxeQt9-sIIelRnA)
 ![](https://osu.akatsuki.pw/ss/z6mzPlzl.jpeg)
 
-]# [- noim04 (intercambing edit) -](https://mega.nz/file/92hnUDrY#b8CGaI80vYU7WnDI74Ic9EAGWa9r6QrRqFaM9YDcmF4)
+# [- noim04 (intercambing edit) -](https://mega.nz/file/92hnUDrY#b8CGaI80vYU7WnDI74Ic9EAGWa9r6QrRqFaM9YDcmF4)
 ![](https://osu.akatsuki.pw/ss/pdRRM6SI.jpeg)
 
 # [- noim04 (rafis edit) -](https://mega.nz/file/8vJzBR4C#cXYaFNMD4WDiuASXs4Wwk6upfXEJzzmXBN9qCuSo5fg)
